@@ -1,1 +1,0 @@
-# IPT2_PracticeAct1_Mejias
